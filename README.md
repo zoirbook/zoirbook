@@ -4,9 +4,7 @@ I'm 21 years old and senior at university.
 
 Frontend Developer 
 
-I can live without air but without code I can't 
-
-I'm bookworm so I just wanna eat books instead of foods
+I could survive without air, but I can't live without coding. And as a bookworm, I'd rather 'feast' on books than on food for endless nourishment.
 
 How to reach me : https://t.me/zoirbook
 
